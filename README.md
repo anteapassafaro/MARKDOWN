@@ -1,7 +1,7 @@
 # Profilo Gamer di Passafaro Antea
 
 **Età:** 19  
-**Nickname:** Thea20 
+**Nickname:** Thea20   
 **Piattaforma preferita:** PC  
 
 ---
